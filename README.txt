@@ -1,0 +1,1 @@
+Um cálculo recomendado pelos especialistas é ingerir 35ml de água por cada quilo. Assim, a quantidade de água ingerida se aproxima mais da sua necessidade individual. Exemplo: Uma pessoa que pesa 65 quilos deve tomar aproximadamente 2,27 litros de água por dia.
